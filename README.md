@@ -1,3 +1,3 @@
 # Save the Date
 
-Yuri & Inga, 16.10.2027
+Inga & Yuri, 16.10.2027
