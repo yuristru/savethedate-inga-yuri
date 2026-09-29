@@ -1,3 +1,3 @@
-# Save the Date
+# Private event page
 
-Inga & Yuri, 16.10.2027
+No public index or public page links.
